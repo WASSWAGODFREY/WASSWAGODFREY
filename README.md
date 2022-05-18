@@ -4,8 +4,7 @@
 - 💞️ I’m looking to collaborate with every resourcefull and intrested people in my field.
 - 📫 How to reach me:
 -                     -whatsapp or call- 0774785596 OR 0751949379
--                     -Email- wasswag123@gmail.com OR 
--                           - 1900802907@std.kyu.ac.ug
+-                     -Email- wasswag123@gmail.com OR 1900802907@std.kyu.ac.ug
 
 <!---
 WASSWAGODFREY/WASSWAGODFREY is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
